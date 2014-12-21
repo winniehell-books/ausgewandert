@@ -29,3 +29,7 @@ Der Fremde öffnete seinen Geldbeutel, den er unter den Gewändern getragen hatt
 Die Treppe endete in einem dunklen Korridor. Nachdem der Wirt an zwei Holztüren vorbei gegangen war, blieb er vor einer dritten stehen und öffnete sie. Danach ging er wortlos wieder hinunter.
 
 Das Zimmer war klein und hatte ein Fenster zur Straße. Die eine Wand wurde von einem Kleiderschrank fast vollständig verdeckt. Auf der anderen Seite war eine Schlafstätte ohne Matratze, die eher an einen großen Tisch erinnerte.
+
+Der Reisende stellte sich vor das Fenster und blickte eine Weile auf die leere Straße. Bis zum frühen Nachmittag verbrachten die meisten Bewohner der Stadt ihre Zeit im Innern ihrer Häuser, um der Sonne zu entgehen. Die meisten hatten dicke Steinwände, sodass es drinnen angenehm kühl war.
+
+Schließlich riss er sich von seinen Gedanken los, legte den abgenutzten Reisesack auf den Boden und kehrte zurück in den Schankraum, um auf das Essen zu warten. Die anderen beiden Männer waren inzwischen gegangen und so saß der Fremde alleine am Tisch bis der Wirt mit einem dampfenden Eintopf und einem Krug Bier aus der Küche kam.
