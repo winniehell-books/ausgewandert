@@ -8,4 +8,4 @@ Auf dem Weg hinunter in die nächste Senke meinte er kurz das Glitzern des groß
 
 In diesen Teil der Welt verirrte sich nur selten jemand. Die Händlerkarawanen nutzten Roten, die an den wenigen Zisternen vorbei führten und alle anderen Reisenden nahmen den weniger beschwerlichen Weg auf dem Fluss. Doch wenn man verfolgt wird, kann man sich nicht immer aussuchen, wie man zum nächsten Zufluchtsort gelangt.
 
-Die darauf folgende Düne  war etwa doppelt so hoch wie die letzte und der Wanderer fing an zu keuchen. Er musste mehrmals entkräftet anhalten. Doch schon bald war klar, dass sich der Aufstieg gelohnt hatte: Von oben blickte er herab auf die Wüstenstadt [Kerez](#city-kerez).
+Die folgende Düne  war etwa doppelt so hoch wie die letzte und der Wanderer fing an zu keuchen. Er musste mehrmals entkräftet anhalten. Doch schon bald war klar, dass sich der Aufstieg gelohnt hatte: Von oben blickte er herab auf die [Wüstenstadt Kerez](#city-kerez).
